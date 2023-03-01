@@ -8,16 +8,16 @@
 ## a sort of faq
 
 ### who
-i'm zane st. john, and i am a freshman at stanford.
+i'm zane.
 
 ### what
 some thoughts of mine.
 
 ### when
-i decided to do something like this in january 2023, and in february i decided to make my thoughts public.
+i decided to do something like this in january, and in february i decided to make my thoughts public.
 
 ### where
-github for now. maybe i'll make a web wrapper around this repo.
+github for now.
 
 ### why
 i place a high value on reflection and transparency, and this collection of writings gives me the opportunity to put those values into practice.
