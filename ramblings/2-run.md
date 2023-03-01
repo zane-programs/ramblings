@@ -22,7 +22,7 @@ in this time away, i'd still seek out something productive, something useful. wh
 maybe i don't have to run. i think i can do what i want to do, what i need to do, without leaving. but in order to do that, i'll need to commit to:
 
 1. **mindfulness.** i don't do it enough and it's been so helpful. yesterday, i had an opportunity to lead a short meditation in one of my classes, and it helped me a lot in feeling better about what lay ahead of me for the rest of the day.
-2. **distance.** i have to maintain proper distance between myself and the people and things i interact with on a daily basis. i should keep my distance from the things that cause me stress but move closer to
+2. **distance.** i have to maintain proper distance between myself and the people and things i interact with on a daily basis. i should keep my distance from the things that cause me stress but move closer to those that keep me calm and balanced.
 3. **self-care** in general. continuing to eat, sleep, and exercise in addition to everything else. these will remain important even as circumstances change.
 4. **gratitude.** maybe my favorite on this list. it's easy to forget how lucky i am to have everything that i do: a roof over my head, food to eat, and opportunities to better and balance myself every day, inside and out. beyond that, there are so many people i'm grateful for. why not start by enumerating *some* of them (in no particular order)?
     - my family. i know i'm in your thoughts, and you are always in mine <3 love you
