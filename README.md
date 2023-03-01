@@ -3,6 +3,7 @@
 
 ## my ramblings
 - [pills](ramblings/1-pills.md) (february 27, 2023)
+- [run](ramblings/2-run.md) (february 28, 2023)
 
 
 ## a sort of faq
